@@ -1,1 +1,0 @@
-nauczycielka matematyki
